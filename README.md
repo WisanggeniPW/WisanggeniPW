@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+📫 Reach me and we can be friend!
+[My LinkedIn](https://www.linkedin.com/in/wisanggenipw/)
+
+[My Instagram](https://www.instagram.com/icangwpw/)
+
+[Email Me!](mailto:paramusesa.w@gmail.com?subject=Hello!&body=Can%20we%20be%20friend%3F)
+
 <!--
 **WisanggeniPW/WisanggeniPW** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
