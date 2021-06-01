@@ -1,6 +1,7 @@
 ### Hi there 👋
 
 📫 Reach me and we can be friend!
+
 [My LinkedIn](https://www.linkedin.com/in/wisanggenipw/)
 
 [My Instagram](https://www.instagram.com/icangwpw/)
